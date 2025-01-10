@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @abn-moftah {ᗰỒĥảňŉạď}
+- 👋 Hi, I’m @abn-moftah
 - 👀 I’m interested in البرمجه
 - 🌱 I’m currently learning برمجه 
 - 💞️ I’m looking to collaborate on في الامور البرمجيه
